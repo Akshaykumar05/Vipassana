@@ -22,6 +22,13 @@ The technique is taught at ten-day residential courses during which participants
 ### Benefits of Vipassana
 ![](https://www.choosingtherapy.com/wp-content/uploads/2023/05/Potential-Benefits-of-Vipassana-Meditation.png)
 
+### My Takeaways:
+* To do your work without or less disturbing others.
+* Be in present, and keep a balance in thinking about past and future.
+* Respect others opinion.
+* Do regular meditation (make it a part of daily life cycle)
+  
+  
 ### Conclusion
 * Because it has been found to be genuinely helpful, great emphasis is put on preserving the technique in its original, authentic form. It is not taught commercially, but instead is offered freely.
 * No person involved in its teaching receives any material remuneration. There are no charges for the courses - not even to cover the cost of food and accommodation.
