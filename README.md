@@ -27,7 +27,7 @@ The technique is taught at ten-day residential courses during which participants
 * Be in present, and keep a balance in thinking about past and future.
 * Respect others opinion.
 * Do regular meditation (make it a part of daily life cycle)
-* 
+  
 ### How it can be beneficial for you
 * It can help in reducing stress and frustation, while also boost focus and compassion.
 * It can helps to make your emotions balance.
