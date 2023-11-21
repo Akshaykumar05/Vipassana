@@ -29,10 +29,11 @@ The technique is taught at ten-day residential courses during which participants
 * Do regular meditation (make it a part of daily life cycle)
 * 
 ### How it can be beneficial for you
-* It can increase your productivity in an organization
-* It can helps you to make your emotions balance.
-* Relationships
+* It can help in reducing stress and frustation, while also boost focus and compassion.
+* It can helps to make your emotions balance.
 * Helps to deal with people in a way that is very friendly.
+* Relationships
+* It can increase your overall productivity in an organization
   
 ### Conclusion
 * Because it has been found to be genuinely helpful, great emphasis is put on preserving the technique in its original, authentic form. It is not taught commercially, but instead is offered freely.
