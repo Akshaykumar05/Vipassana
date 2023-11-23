@@ -47,4 +47,5 @@ The technique is taught at a ten-day residential courses during which participan
 
 ### Regerences:
 * https://www.dhamma.org/en/index
+* Book: **Pravachan Saransh**
 
