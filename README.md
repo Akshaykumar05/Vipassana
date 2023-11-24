@@ -22,11 +22,6 @@ The technique is taught at a ten-day residential courses during which participan
 ### Benefits of Vipassana
 ![](https://www.choosingtherapy.com/wp-content/uploads/2023/05/Potential-Benefits-of-Vipassana-Meditation.png)
 
-### My Takeaways:
-* To do your work with minimal disturbing others.
-* Be in present, and keep a balance in thinking about past and future.
-* Respect others opinion.
-* Do regular meditation (make it a part of daily life cycle)
   
 ### How it can be beneficial for you
 * It can help in reducing stress and frustation, while also boost focus and compassion.
@@ -34,6 +29,12 @@ The technique is taught at a ten-day residential courses during which participan
 * Helps to deal with people in a way that is very friendly.
 * Relationships
 * It can increase your overall productivity in an organization
+
+### My Takeaways:
+* To do your work with minimal disturbing others.
+* Be in present, and keep a balance in thinking about past and future.
+* Respect others opinion.
+* Do regular meditation (make it a part of daily life cycle)
   
 ### Conclusion
 * Because it has been found to be genuinely helpful, great emphasis is put on preserving the technique in its original, authentic form. It is not taught commercially, but instead is offered free.
